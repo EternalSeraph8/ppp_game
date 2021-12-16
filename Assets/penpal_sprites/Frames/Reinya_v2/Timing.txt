@@ -1,0 +1,2 @@
+All 0.25s except
+- Frame 12, 24: 0.5s

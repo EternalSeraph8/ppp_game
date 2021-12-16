@@ -1,0 +1,1 @@
+All 0.2 except Frame 9,10,20,21: 0.3 ; Frame 11,22: 0.6
