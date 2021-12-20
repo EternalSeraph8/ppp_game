@@ -59,6 +59,7 @@ Game Audio: Vocals
 * TheOnlyDuke (https://twitter.com/JohnReaper47)
 * AJZlulu (https://twitter.com/AJZulu)
 * SugarClass (https://twitter.com/SugarClassSC)
+* Tahvohck (https://twitter.com/tahvohck)
 * Raylin
 	* Twt: https://twitter.com/RayLin9090
 	* Yt: https://www.youtube.com/channel/UCDsc97nSza2JoTvdFh1Kosg
@@ -71,6 +72,10 @@ Game Audio: Vocals
 * Peen
 	* Twt: https://twitter.com/PLewds
 	* Yt: https://www.youtube.com/channel/UCz6WyGUU2AJz5N_Len0qwsg
+* Reiny
+	* Twt:https://twitter.com/Reiny_ENVT
+	* Yt:https://www.youtube.com/channel/UC_HrzgYmapddmGSfn2UMHTA
+
  
 Artist: Submitted Fan Art
 * SodaTaeko ( https://twitter.com/SodaTaeko)
@@ -101,6 +106,9 @@ Artist: Submitted Fan Art
 * Raylin
 	* Twt: https://twitter.com/RayLin9090
 	* Yt: https://www.youtube.com/channel/UCDsc97nSza2JoTvdFh1Kosg
+* Reiny
+	* Twt:https://twitter.com/Reiny_ENVT
+	* Yt:https://www.youtube.com/channel/UC_HrzgYmapddmGSfn2UMHTA
  
 Special Thanks - Text Submissions
 * Tahvohck (https://twitter.com/tahvohck)
